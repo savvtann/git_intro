@@ -1,1 +1,2 @@
 Savannah Tanner
+tannersa@oregonstate.edu
